@@ -1,0 +1,1 @@
+I'm lazy, downloading decrypting / reviewing my payslips became a burden
